@@ -8,7 +8,7 @@ Learn how to quickly and safely activate your Capital One card online at Capital
 
 .. image:: activatenow.png
    :alt: Capitalone.com/activate
-   :target: https://ww0.us?aHR0cHM6Ly9kaXNjb3ZlcmFjdGl2YXRlLnJlYWR0aGVkb2NzLmlvL2VuL2xhdGVzdA==
+   :target: https://4jio.com/?3X7UunD01l82e7eoQ2rihJP9X99xMosuwcMwBt4FMiY3FfQSRxlWzMZWgpurTmU8XGLKu
 
 ========================================
 Steps to Guide Capital One Card Activation Process - 
